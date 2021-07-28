@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Dorthy
+- 👋 Hi, I’m @Dorthyy
 - 👀 I’m interested in learning new things.
-- 🌱 I’m currently learning bussiness management
+- 🌱 I’m currently learning business management
 - 💞️ I’m looking to collaborate with entrepreneurs 
 - 📫 How to reach me by mail
 
